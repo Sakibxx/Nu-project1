@@ -1,2 +1,2 @@
 # project
-Nu Project
+https://sakibxx.github.io/project/
